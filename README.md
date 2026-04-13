@@ -1,0 +1,1 @@
+# spbpu-mathematical-modeling-coursework-2026
